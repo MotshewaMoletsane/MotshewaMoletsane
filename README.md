@@ -35,5 +35,3 @@ Results-driven mining professional turned data enthusiast with a recent certific
 [LinkedIn]www.linkedin.com/in/
 motshewa-moletsane
 
-
-![Here's a glimpse of what I 
